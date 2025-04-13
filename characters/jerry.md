@@ -4,7 +4,7 @@
 
 
 ## Jerrys Background
-- Born in Florida
-
+- Born in Maine
 
 ## Jerry's lifestyle
+- Lives at home, nevers goes out
